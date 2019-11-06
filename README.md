@@ -19,7 +19,7 @@ UBER - Discount off your first ride	--> gosiag6
 
 URBAN MASSAGE - 30% off your first treatment --> RMARG0AK0
 
-Startups in London Promos:
+London Startups: Discount codes
 
 
 [Bulb Energy -	Free £50 Credit](https://www.bulb.me/malgorzatag7351)
